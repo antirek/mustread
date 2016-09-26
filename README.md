@@ -17,3 +17,5 @@
 [Терри Пратчетт  К оружию! К оружию!](https://ru.wikipedia.org/wiki/%D0%9A_%D0%BE%D1%80%D1%83%D0%B6%D0%B8%D1%8E!_%D0%9A_%D0%BE%D1%80%D1%83%D0%B6%D0%B8%D1%8E!)
 
 Даниэль Канеман "Думай медленно... решай быстро"
+
+Владимир Киселев. Девочка и птицелет http://lib.ru/PRIKL/KISELEW_W/dewochka_i_pticelet.txt
